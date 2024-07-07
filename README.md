@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on developer the sistem
 - 📫 How to reach me by my email marcelosantana931@gmail.com
 - 😄 Pronouns: marcelo santana
-- ⚡ Fun fact: funny
+- ⚡ Fun fact: getting started in IT
 - ADS student role migration
 
 <!---
